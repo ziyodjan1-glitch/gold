@@ -1,1 +1,6 @@
-# gold
+BMWHGJGTHJ CJTU
+JKJH
+ OUJ
+ KHKHL
+ JKHJV
+ 
